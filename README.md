@@ -1,5 +1,5 @@
-## 『  Gustavo Moretti  』 
-『💼』 - CEO da polaar <br>
+##   Gustavo Moretti   
+💼 - CEO da polaar <br>
 
 
 <div align="center">
